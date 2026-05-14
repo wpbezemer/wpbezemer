@@ -1,4 +1,4 @@
-# Hey, I'm Bunny 👋
+# Hey, I'm tedzor 👋
 
 > *"If it's dumb and it doesn't know it — I'll teach it."*
 
